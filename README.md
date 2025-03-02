@@ -2,3 +2,4 @@
 
 ![preview](https://github.com/user-attachments/assets/95248454-fc4b-4fbc-b07e-a6b99b6f7701)
 
+[![SHOWCASE](https://mygamingedge.online/images/main.webp)](https://mygamingedge.online/)
